@@ -1,5 +1,7 @@
 <p align="center"> 
   ╳ Alex ╳ 
+  <p align="center"> 
+    ᴬᶻᵘʳᵉ ᵏⁱⁿⁿ
 <p align="center"> 
  <br><img src="https://i.pinimg.com/originals/a0/a0/e3/a0a0e3112e1390e781be86d20cde09e3.gif" class="fr-fic fr-dib" width="350.333" height="350.333""> 
 <p align="center">
