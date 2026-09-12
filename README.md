@@ -3,7 +3,7 @@
   <p align="center"> 
     ᴬᶻᵘʳᵉ ᵏⁱⁿⁿ
 <p align="center"> 
- <br><img src="https://f2.toyhou.se/file/f2-toyhou-se/images/106433181_SikfClloKStVATJ.gif" 
+ <br><img src="https://f2.toyhou.se/file/f2-toyhou-se/images/106433181_SikfClloKStVATJ.gif" class="fr-fic fr-dib" width="480.000" height="270.000""> 
 <p align="center">
 𝐼'𝓂 𝓃𝑜𝓉 𝓁𝑜𝑜𝓀𝒾𝓃𝑔 𝒻𝑜𝓇 𝓃𝑒𝓌 𝒻𝓇𝒾𝑒𝓃𝒹𝓈, 𝒶𝓃𝒹 𝐼 𝒽𝒶𝓋𝑒 𝓂𝓎 𝑜𝓌𝓃 𝒯𝒢𝒞 - <a href="https://t.me/jucharaloo" target="_blank">𝒿𝓊𝒸𝒽𝒶𝓇𝒶</a> </p>
 <p align="center">
